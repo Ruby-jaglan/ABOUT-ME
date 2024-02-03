@@ -5,7 +5,7 @@ WELCOME TO MY PERSONAL PORTFOLIO!
 
 **LOCATION:** [FARIDABAD]
 
-**ACTIVE MEMBER:** [NSS,YRC]
+**ACTIVE MEMBER:** [NSS,YRC,EKLAVYA]
 
 **COLLEGE:** [JC Bose University of Science and Technology ,ymca, faridabad]
 
